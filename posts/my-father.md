@@ -44,3 +44,12 @@ He had surpassed me once more by standing up for what he believed in.
 He died too soon.
 
 I miss my dad.  We both had so much more to learn. 
+
+---
+
+Mike Fitzsimon died of pancreatic cancer that spread to his brain.
+During his final weeks he was surounded by his sons and my mother.
+We shaved him, fed him. As he held me in my first days, I held him in his last. 
+It was a traumatic decline those last nights. 
+I was lucky to hold his hand as he died.
+We will never forget our love. 
